@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @ArturoM001
+- 👋 Hi, I’m @Arturo
 
 - 👀 I’m interested in ...
 - I’m interested in Electrical and Computer Engineering as well as 
